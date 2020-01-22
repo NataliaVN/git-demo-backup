@@ -1,3 +1,9 @@
-# git-demo
+sword and spear
+wall of shields
+standing strong
+on this their chosen battle field 
 
-some content
+Form the lines
+Shield by Shield
+Side by Side
+We`re marchine into destiny
